@@ -1,0 +1,2 @@
+This is joy bangla.
+This monument at the University of Chittagong honors Bangladeshi freedom fighters of the 1971 Liberation War. Surrounded by nature, it represents courage, unity, and sacrifice, reminding future generations of the struggle that led to Bangladesh’s independence.
